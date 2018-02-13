@@ -2,6 +2,7 @@
 
 These are a few of my favorite things:
 
+- Getting into my major lol jk 
 - Raindrops on roses
 - Whiskers on cute animals
 - Bright copper kettles
