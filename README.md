@@ -2,9 +2,9 @@
 
 These are a few of my favorite things:
 
-- Getting into my major lol jk 
+- Getting into my major lol jk
 - Raindrops on roses
-- Whiskers on cute animals
+- Whiskers on cute PYTHONS
 - Bright copper kettles
 - Warm woolen mittens
 - Not editing directly on GitHub
